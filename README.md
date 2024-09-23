@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tanishasage
 - 👀 I’m interested in coding,editing content videos,makeup,and poetry.
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning Jave
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ...Follow me on Instagram @Tanishasage
 - 😄 Pronouns: she/her
